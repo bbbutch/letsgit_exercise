@@ -18,3 +18,5 @@ Despite this he remains almost unknown in the English-speaking world. He was exp
 
 He said once:
 > MUSKATNUSS HERR MÜLLER!
+
+<img src="https://en.wikipedia.org/wiki/Louis_de_Fun%C3%A8s#/media/File:Louis_de_Fun%C3%A8s_1970.jpg"/>
