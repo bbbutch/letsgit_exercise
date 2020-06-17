@@ -15,3 +15,5 @@ Despite this he remains almost unknown in the English-speaking world. He was exp
 * known as "Fufu"
 * became bar pianist
 * jazz pianist in paris
+
+<img src="https://en.wikipedia.org/wiki/Louis_de_Fun%C3%A8s#/media/File:Louis_de_Fun%C3%A8s_1970.jpg"/>
