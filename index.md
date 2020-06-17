@@ -15,3 +15,6 @@ Despite this he remains almost unknown in the English-speaking world. He was exp
 * known as "Fufu"
 * became bar pianist
 * jazz pianist in paris
+
+He said once:
+> MUSKATNUSS HERR MÜLLER!
