@@ -7,3 +7,11 @@ de Funès is one of the most famous French actors of all time, and even more so 
 Besides his extreme fame in the French-speaking world he also still is a household name in places like Italy, Germany, Spain, Turkey, Iran, Greece, Israel, Albania, the former Yugoslavia, the former Soviet Union as well as other former Warsaw Pact countries such as Poland, the Czech Republic, Slovakia, Hungary, Romania and Bulgaria.
 
 Despite this he remains almost unknown in the English-speaking world. He was exposed to a wider audience only once in the United States, in 1974, with the release of The Mad Adventures of Rabbi Jacob, which was nominated for a Golden Globe Award. 
+
+## Early life
+
+* born in courbevoie
+* parents from spain
+* known as "Fufu"
+* became bar pianist
+* jazz pianist in paris
